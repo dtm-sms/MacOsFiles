@@ -1,0 +1,1 @@
+Fonts Altice para macOS
